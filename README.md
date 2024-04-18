@@ -24,7 +24,7 @@ Dónde verla:
 
 En cines: La película se estrenó en cines peruanos el 18 de abril de 2024. Puedes consultar las funciones disponibles en tu ciudad en sitios web como Cinemark
 
-Plataformas digitales: Se espera que la película esté disponible en plataformas digitales como Netflix, Amazon Prime Video o Claro Video: https://www.clarovideo.com/ en las próximas semanas.
+Plataformas digitales: Se espera que la película esté disponible en plataformas digitales como Netflix, Amazon Prime Video o Claro Video en las próximas semanas.
 
 Descarga:
 
