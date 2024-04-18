@@ -1,4 +1,4 @@
-# Pelucula-de-Alan-Garcia-Perez
+# Pelucula de Alan Garcia Perez
 Ver o Descargar la Película de Alan García Pérez 2024
 
 ¿Te interesa conocer más sobre la película "Vivo o Muerto: El Expediente García" que explora la vida y muerte del expresidente Alan García Pérez?
